@@ -1,1 +1,1 @@
-Currently In Research and Design Phase
+Currently In Research and Study Phase
